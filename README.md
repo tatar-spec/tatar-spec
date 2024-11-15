@@ -43,6 +43,6 @@ When I'm not coding, you can find me at the beach 🏖️, exploring new recipes
 
 ### 📬 **Get in Touch**  
 - 📧 [Email Me](mailto:appmasgutova@gmail.com)
-- 🔗 [LinkedIn]([https://www.linkedin.com/in/albina-masgutova/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/albina-masgutova/)  
 - 🐦 [Academia Profile](https://independent.academia.edu/AlbinaMasgutova)  
 - 🌍 [Personal Website](https://yourwebsite.com)
